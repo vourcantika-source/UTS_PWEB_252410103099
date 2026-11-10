@@ -80,4 +80,4 @@ Maison Sucrée mengusung konsep desain minimalis dan elegan dengan perpaduan war
 
 ---
 
-**Maison Sucrée — A Little Taste of Elegance.**
+**Maison Sucrée, A Little Taste of Elegance.**
